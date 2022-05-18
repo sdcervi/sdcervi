@@ -22,7 +22,7 @@ I have experience with several common design programs and areas, including:
 - Adobe Illustrator
 - Adobe InDesign
 - Adobe Lightroom
-- Solidworks 2012
+- Solidworks
 - 3D printing
 
 # How to reach me
