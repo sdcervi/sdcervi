@@ -28,7 +28,7 @@ I have experience with several common design programs and areas, including:
 # How to reach me
 - [Design portfolio](https://www.stephaniecervi.net/)
 - [Facebook](https://www.facebook.com/stephaniecervidesign)
-- [Instagram](https://www.instagram.com/stephaniecervidesign/)\
+- [Instagram](https://www.instagram.com/stephaniecervidesign/)
 - [Tumblr](https://stephaniecervidesign.tumblr.com/)
 - [TikTok](https://www.tiktok.com/@stephaniecervidesign)
 
