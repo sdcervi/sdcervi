@@ -24,6 +24,7 @@ I’m an independent visual designer in California. My journey as an artist and 
 
 # How to support my work
 - [Ko-fi](https://ko-fi.com/X8X6E4D2)
+- [Patreon](https://www.patreon.com/stephaniecervidesign)
 - [Etsy](https://www.etsy.com/shop/StephanieCerviDesign)
 - [eBay](https://www.ebay.com/sch/stephaniecervidesign)
 - [Stephanie Cervi Design shop](https://stephaniecervi.design/shop)
